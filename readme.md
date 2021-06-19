@@ -2,5 +2,6 @@
 
 Esta serie de libros cuentan la historia de un hacker excepcional.
 
-**Fátima Castro**
+**Fátima Castro**, Larry Plotter fan
+
 
